@@ -1,5 +1,4 @@
 - Sam
 - Pronouns: He/Him
-- Minecraft modder (beginner)
-- dogsh*t dev
-- ultrakill enjoyer (f*ck you guttertanks)
+- Beginner dev
+- College (first year)
